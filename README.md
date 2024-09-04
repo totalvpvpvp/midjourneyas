@@ -1,6 +1,6 @@
 # Midjourney账号合租平台
 
-最新地址：[https://tz.059950.xyz](https://tz.059950.xyz)
+最新地址：[https://t.192291.xyz](https://t.192291.xyz)
 
 ## Midjourney账号合租注意事项
 
